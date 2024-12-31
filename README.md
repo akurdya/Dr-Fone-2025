@@ -13,7 +13,7 @@
 
 
 > [!NOTE]
-> Wondershare Dr.Fone patched is an efficient application that has been developed to recover lost data from iPhone, iPad and iPod touch devices. Retrieving lost data is very simple, you can easily perform tasks with just a few mouse clicks.
+> Wondershare Dr.Fone patched is an efficient application that has been developed to recover lost data from devices. Retrieving lost data is very simple, you can easily perform tasks with just a few mouse clicks.
 
 
 
